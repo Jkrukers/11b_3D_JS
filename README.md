@@ -6,7 +6,7 @@ Projektā piedālās:
 
 Patriks Morevs
 Kristaps Zass :(
-Jānis Ruķers :/
+Jānis Ruķers :)
 Artūrs Jurgensons
 Loransa Greitāne
 Gustavs Adrians Bērziņš :p
